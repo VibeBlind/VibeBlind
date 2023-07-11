@@ -1,4 +1,1 @@
-### Hello! I go by Vibe.
-
-I'm interested in VR, making games, and other projects that sound like they belong in Sci-Fi movies.
-Let's make some cool stuff together.
+Hey! I'm Vibe and I'm all about AR/VR, game development, and futuristic projects. Let's team up and create something amazing!
